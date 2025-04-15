@@ -3,8 +3,11 @@ My name is hoard, but you can call me zerokoolaid (an 2021-2022 name I was calle
 I've created multiple projects in the pass year or so
 ## Projects:
 **1. Zopoline**
+
 **2. Jitless**
+
 **3. Jelistial**
+
 ## Contacts:
 Discord Tag: 64granddadisreal
 ## Owner of newer projects:
