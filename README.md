@@ -1,16 +1,13 @@
 ## Hi there 👋
-
-<!--
-**hoardhoard/hoardhoard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My name is hoard, but you can call me zerokoolaid (an 2021-2022 name I was called by back when I were active in vape v4 roblox)
+I've created multiple projects in the pass year or so
+## Projects:
+**1. Zopoline**
+**2. Jitless**
+**3. Jelistial**
+## Contacts:
+Discord Tag: 64granddadisreal
+## Owner of newer projects:
+[HardX](https://discord.gg/UTDdd79U8A)
+## Lets talk!
+If you would like to talk to me, **You can at my discord dms.**
