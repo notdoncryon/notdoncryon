@@ -16,3 +16,5 @@ Discord Tag: 64granddadisreal
 [HardX](https://discord.gg/UTDdd79U8A)
 ## Lets talk!
 If you would like to talk to me, **You can at my discord dms.**
+> [!NOTE]
+> When you would like to chat, please note that I may not respond or that my dms are probably off. You can also ask questions or about my projects too.
